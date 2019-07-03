@@ -1,1 +1,1 @@
-{"url":"https://www.976yt.com/"}
+https://www.976yt.com
